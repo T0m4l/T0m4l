@@ -2,6 +2,7 @@
 - 👀 I’m interested in ...Ethical Hacking
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...Protecting Bd Cyber
+- 🤔 And I'm also teaching myself as much I can.Cz I have some fuckers to fuck up/Peace✌🏽
 - 📫 How to reach me ...Gmail:kayestomal77@gmail.com
 
 <!---
